@@ -1,0 +1,2 @@
+# aplikasiabsensi
+sedot oprek oprek
